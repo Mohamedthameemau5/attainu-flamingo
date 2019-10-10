@@ -1,1 +1,1 @@
-# attainu-flamingo
+# assignments

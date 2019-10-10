@@ -1,0 +1,1 @@
+I want to become a computer engineer from school days.I was forced to do aeronautical engineering by my parents.I am able to learn and express the computer skills.I am able to boot OS,to design graphical design using vector and image.Its my life changing movement to become a coder.Thanks AttainU Team.
